@@ -1,1 +1,1 @@
-My own project
+🧙Hocus-pocus!
